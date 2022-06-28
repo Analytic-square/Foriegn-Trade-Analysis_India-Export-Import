@@ -1,6 +1,6 @@
 # Foriegn-Trade-Analysis_India-Export-Import
 
-                                                                                Introduction
+                                                                Introduction
 
 History:- Even before independence, the Government of India maintained semi-autonomous diplomatic relations. It had colonies (such as the Aden Settlement), who sent and received full missions, and was a founder member of both the League of Nations and the United Nations.After India gained independence from the United Kingdom in 1947, it soon joined the Commonwealth of Nations and strongly supported independence movements in other colonies, like the Indonesian National Revolution. The partition and various territorial disputes, particularly that over Kashmir, would strain its relations with Pakistan for years to come. During the Cold War, India adopted a foreign policy of non-alignment policy itself with any major power bloc. However, India developed close ties with the Soviet Union and received extensive military support from it.
 
